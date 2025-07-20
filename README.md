@@ -60,7 +60,7 @@ Sou movido por aprendizado constante, disciplina e foco em resolver problemas pr
 📍 Vitória da Conquista - BA  
 📧 alissoneppe@gmail.com  
 📱 (77) 98157-5735 | (11) 93241-4298
-🔗 [LinkedIn](https://www.linkedin.com/in/alisson-de-rodrigues-237457297)  
+🔗 [LinkedIn](https://www.linkedin.com/in/alisson-de-rodrigues-237457297)
 🔗 [GitHub](https://github.com/Alisson-DeRodrigues)
 
 ---
